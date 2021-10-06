@@ -1,3 +1,3 @@
 # Sobre Mim
 
-Sou jefferson barbosa puchalski, conhecido mais como puchalski.
+Sou Jefferson Barbosa Puchalski, mais conhecido como puchalski.
